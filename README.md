@@ -9,4 +9,3 @@ Este é apenas um __rascunho__!
 * Bolo de Cenoura
 * Brigadeiro
 * Arroz Carreteiro
-
