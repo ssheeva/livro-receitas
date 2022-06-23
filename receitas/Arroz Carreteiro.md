@@ -22,3 +22,5 @@
 6. Refogue o bacon e a calabresa até ficar bem dourada, acrescentando depois a cebola, tomate, pimenta calabresa e a carne desfiada.
 7. Após acrescente o arroz, afogue bem, adicione a água corrigindo o sal se necessário e abaixe o fogo aguardando secar.
 8. Quando pronto, colocar a salsa em cima.
+
+**Boa refeição"**

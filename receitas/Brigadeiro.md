@@ -5,7 +5,7 @@
 - 1 caixa de Leite Condensado
 - 1 colher (sopa) de margarina sem sal
 - 7 colheres (sopa) de achocolatado
-- chocolate granulado (Opcional)
+- Chocolate granulado (Opcional)
 
 ## Modo de Preparo
 
